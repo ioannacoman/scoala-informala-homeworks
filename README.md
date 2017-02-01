@@ -1,1 +1,1 @@
-# scoala-informala-homeworks Ioana Coman
+ Ioana Coman
